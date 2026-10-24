@@ -19,3 +19,14 @@ Cortar las papas en cuadritos
 Fritar el huevo
 Servir ingredientes
 Poner salsa de tomate
+
+## Bebidas recomendadas
+Coca-Cola
+Aguapanela fría con limón
+Cervecita
+
+## Pasabocas
+Gomitas trululú de gusanos
+Papitas de limón
+Doritos y Maduritos
+Boliqueso
