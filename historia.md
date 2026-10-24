@@ -3,3 +3,6 @@ La receta viene de tiempos antiguos, cuando el atún no valía más de $3.000 pe
 
 ## Por qué me fascina?
 Es una receta rápida, sencilla, deliciosa, que te transporta a cuando éramos mascotas, solo comíamos, dormíamos y jugabamos.
+
+## Consejo final
+Prepárala con mucho amor, cariño, y con cuidado cortando las papas.
