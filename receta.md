@@ -1,4 +1,4 @@
-# Receta tradicional de mi familia
+# Receta editada desde mi computador
 
 Nombre del plato: ....
 
