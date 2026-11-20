@@ -1,4 +1,4 @@
-# Mi receta
+# Receta tradicional de mi familia
 
 Nombre del plato: ....
 
