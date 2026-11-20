@@ -1,4 +1,4 @@
-# Mi receta
+# La mejor receta del mundo
 
 Nombre del plato: ....
 
