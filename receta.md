@@ -1,6 +1,6 @@
 # Receta editada desde mi computador
 
-Nombre del plato: ....
+Nombre del plato: El corrientazo
 
 ## Ingredientes
 
